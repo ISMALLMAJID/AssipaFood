@@ -1,5 +1,5 @@
 # KELOMPOK 3
-- Yasheva Megume Rohang - 220907502003  
+- Yasheva Megumi Rogang - 220907502003  
 - Muh Nur Adam - 220907502010  
 - Andi Astina Misba - 220907501002  
 - Gusfira Khairunnisa - 220907501001  
